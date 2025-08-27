@@ -4,7 +4,7 @@
 
 🚀 Busco mejorar y estudiar sobre los fines de la informática.
 
-🎯 Me puedes buscar también como Darck.
+🎯 Me puedes buscar también como José Manuel Jolón Perez.
 
 💡 Dato curioso: Soy una persona determinada.
 <!---
